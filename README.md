@@ -26,7 +26,8 @@
 | Windows | Qv2ray     | https://github.com/Qv2ray/Qv2ray/releases                          |
 
 <b>[SpeedCat](https://speedcat-aff.com/auth/register?code=qmed)</b>
-<p>稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。 </p>
+<p>闪电猫是一个海外的SS机场，重新定义科学上网，主打快速稳定，全专线IPLC，没有倍率、没有套路，承诺买多少给多少。
+  稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。 </p>
 
 https://speedcat-aff.com/auth/register?code=qmed
 
