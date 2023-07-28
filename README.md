@@ -52,12 +52,6 @@ https://console.bywa.art/aff.php?aff=4013
 
 https://tapfog.com/#/register?code=MZ0x5UNV
 
----
-
-<b>[Teacat](https://tapfog.com/#/register?code=MZ0x5UNV)</b>
-<p>100+节点高端稳定大机场，含月付，也有“流量包”计费，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。注册即可免费试用三天。</p>
-
-https://tapfog.com/#/register?code=MZ0x5UNV
 
 ---
 
