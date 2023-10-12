@@ -52,14 +52,6 @@ https://console.bywa.art/aff.php?aff=4013
 
 https://tapfog.com/#/register?code=MZ0x5UNV
 
-
----
-
-<b>[Miaona](https://miaona.xyz/#/register?code=FjTLdYDY)</b>
-<p>高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
-
-https://miaona.xyz/#/register?code=FjTLdYDY
-
 ---
 
 <b>[MieLink](http://mielink-invite.com/register?aff=DKYSKF)</b>
