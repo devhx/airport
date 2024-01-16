@@ -54,8 +54,8 @@ https://tapfog.com/#/register?code=MZ0x5UNV
 
 ---
 
-<b>[MieLink](http://mielink-invite.com/register?aff=DKYSKF)</b>
-<p>提供回国服务（在国外用 - 解除版权限制），云游服务（在国内用 - 加速国际网络），etflix/PH/Disney等福利账号，支持 Trojan/SSR 协议，解锁：15+ IEPL专线 · 倍率流量，解锁Netflix/Disney等各大流媒体。</p>
+<b>[速鹰666](https://suying00.com/auth/register?code=rQpY)</b>
+<p>最便宜的19.9一个月，100G流量，这家的IPLC节点还不错，就是要59.9一个月，之前用过一段时间速度挺快。</p>
 
-http://mielink-invite.com/register?aff=DKYSKF
+https://suying00.com/auth/register?code=rQpY
 
