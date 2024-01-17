@@ -59,3 +59,10 @@ https://tapfog.com/#/register?code=MZ0x5UNV
 
 https://suying00.com/auth/register?code=rQpY
 
+---
+
+<b>[VC瞄](https://サバ111.青花魚魚.com/auth/register?code=zBxt)</b>
+<p>挺稳定的，几年前就用过，最低套餐便宜，8块钱一个月，最好的是不限制设备数量，贵的套餐还有ios共享帐户。</p>
+
+https://サバ111.青花魚魚.com/auth/register?code=zBxt
+
