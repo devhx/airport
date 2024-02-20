@@ -40,10 +40,10 @@ https://ssltd.club/#/register?code=JGVnk71y
 
 ---
 
-<b>[ByWave](https://user.by.icu/aff.php?aff=4013)</b>
+<b>[ByWave](https://user.by.ltd/aff.php?aff=4013)</b>
 <p>全专线IEPL高速稳定，速度快，售后好，出现故障基本上都会额外补偿，节点包括香港/台湾/韩国/日本/新加坡/美国/英国。一个套餐允许10个设备在线，可以多人同时使用</p>
 
-https://user.by.icu/aff.php?aff=4013
+https://user.by.ltd/aff.php?aff=4013
 
 ---
 
