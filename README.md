@@ -54,10 +54,10 @@ https://tapfog.com/#/register?code=MZ0x5UNV
 
 ---
 
-<b>[速鹰666](https://suying00.com/auth/register?code=rQpY)</b>
+<b>[速鹰666](https://sy7770.com/auth/register?code=rQpY)</b>
 <p>最便宜的19.9一个月，100G流量，这家的IPLC节点还不错，就是要59.9一个月，之前用过一段时间速度挺快。</p>
 
-https://suying00.com/auth/register?code=rQpY
+https://sy7770.com/auth/register?code=rQpY
 
 ---
 
